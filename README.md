@@ -1,0 +1,1 @@
+# majalah-kelompok7
